@@ -1,2 +1,2 @@
-# Ad-Spatium
-A Space &amp; Tech focused modpack
+# Ad Spatium
+![cat](https://imgur.com/a/dxpry0G)
